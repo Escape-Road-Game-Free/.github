@@ -4,6 +4,8 @@
 
 **Escape Road** is a **hyper-speed racing and survival game** that pushes your reflexes to the limit. In this **unblocked browser game**, you must **dash, drift, and survive** along a narrow path filled with sharp turns, traps, and thrilling surprises.
 
+## <a href="https://1kb.link/RJvXgI">👉 Click To Play Escape Road Unblocked Games 👈</a>
+
 Whether you're a fan of **arcade racing**, **endless runners**, or **time attack challenges**, Escape Road delivers an **insane adrenaline rush** right from the start.
 
 ---
